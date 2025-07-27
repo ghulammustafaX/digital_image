@@ -1,2 +1,2 @@
 # digital_image
-![ghulam_mustafa](https://github.com/user-attachments/assets/e7b042ff-0a2a-42e9-9329-2433cfb4550a)
+![ghulam_mustafa](https://github.com/user-attachments/assets/1e59f4a5-57e2-4125-b7f2-d0f9499418a7)
